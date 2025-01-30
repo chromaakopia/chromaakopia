@@ -1,4 +1,4 @@
-![](https://illdielol.carrd.co/assets/images/image09.png?v=0cea9150) 
+![](https://illdielol.carrd.co/assets/images/image18.jpg?v=33efc63c) 
 ***. . .*** 
 
 ౨ৎ , **gooning lord #1** >ᴗ<
